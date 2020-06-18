@@ -8,5 +8,4 @@ Like anyone cares!
 
 God help us all!
 
-
-God helps those who help themselves
+What doesn't kill you will try again a next time
